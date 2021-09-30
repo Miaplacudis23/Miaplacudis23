@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Miaplacudis23
-- 👀 I’m interested in Physics, Psychology, Astronolgy and football.
+- 👀 I’m interested in Physics, Psychology, Astronomy and football.
 - 🌱 I’m currently learning Psychology and English.
 - 💞️ I’m looking to collaborate on Programmes for psychological tests.
 - 📫 How to reach me Send E-mail to me:　miaplacidus23@outlook.com
